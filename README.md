@@ -1,0 +1,1 @@
+!()[http://www.gloomyer.com/img/img/tencentnewstopanimation.gif]
